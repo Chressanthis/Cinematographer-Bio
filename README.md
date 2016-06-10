@@ -1,2 +1,2 @@
 # Cinematographer-Bio
-James Chressanthis, ASC, GSC working cinematographer features, television, web, documentary, music video
+James Chressanthis, ASC, GSC working cinematographer: features, television, activism, web, documentary, music video
